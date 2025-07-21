@@ -1,4 +1,6 @@
-##OleLukCie-Morpheus-Studio
+
+![LOGO-2](https://github.com/user-attachments/assets/4484fd51-ba94-4413-b184-9216a6bb3ce8)
+
 
 ***Thanks for your support! Our first animation is in the first phase.***
 
