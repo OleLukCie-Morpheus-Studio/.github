@@ -1,7 +1,2 @@
-
-![LOGO-2](https://github.com/user-attachments/assets/4484fd51-ba94-4413-b184-9216a6bb3ce8)
-
-
+<img width="2000" height="2000" alt="4th" src="https://github.com/user-attachments/assets/6e53e6a3-9e23-45fe-b2e1-1f5e4f274b65" />
 ***Thanks for your support! Our first animation is in the first phase.***
-
-![3rd](https://github.com/user-attachments/assets/c81c7612-e0b7-4a3b-a431-08ec3c92c12d)
